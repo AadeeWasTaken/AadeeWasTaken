@@ -1,5 +1,5 @@
 # This account has been moved to [aadeexyz](https://github.com/aadeexyz)
-### Moved -> [https://github.com/aadeexyz](https://github.com/aadeexyz)
+### Go Here -> [https://github.com/aadeexyz](https://github.com/aadeexyz)
 
 <!--
 **AadeeWasTaken/AadeeWasTaken** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
