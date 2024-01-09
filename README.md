@@ -1,4 +1,4 @@
-# This account has been moved to **[aadeexyz](https://github.com/aadeexyz)**
+# This account has been moved to [aadeexyz](https://github.com/aadeexyz)
 ### Go Here -> [https://github.com/aadeexyz](https://github.com/aadeexyz)
 
 <!--
